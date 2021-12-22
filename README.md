@@ -1,2 +1,0 @@
-# Major-Assignment
-My Account
